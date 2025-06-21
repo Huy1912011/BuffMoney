@@ -1,7 +1,7 @@
 # Buff Money 🤑
 1. Auto Click [🔧Click Assistant](https://file.apkdone.io/s/4eToSfDMDo5mx26/download)
 
-[📁Config Auto Level 1-6](https://www.mediafire.com/file/kapw12ucev75d1z/Auto+Level+1-6+Back+Fight/file) (Only Back Fight)
+[📁Config Auto Level 1-6](https://www.mediafire.com/file/xjxuaawh2yhakbc/Auto+Level+1-6+Back+Fight/file) (Only Back Fight)
 
 2. Mã Mời: 31647178 [🤑Back Fight](https://d3njmo5ndhiv4x.cloudfront.net/bf/index_8.html?s=MzI4NjI3OTc&id=31647178)
 
